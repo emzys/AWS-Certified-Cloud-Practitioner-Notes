@@ -1,0 +1,2 @@
+https://www.reddit.com/r/AWSCertifications/comments/15sp4rn/i_made_450_practice_questions_for_aws_cloud/
+https://www.reddit.com/r/AWSCertifications/comments/1iryl0p/gascelino_rosteros_practice_exam_book/
